@@ -1,4 +1,8 @@
 ## Hi there 👋
+I am currently working on Excel Expert Certification through Microsoft and Focusing on Learning Data Analytics. I would love to meet new people and learn more about this community and become better through learning.
+You can reach me through here or the email that is attatched to my account. 
+Fun fact? This is entirely a new thing I am trying out here and I am loving it so far. 
+Thanks again :) Have a Great Day!
 
 <!--
 **ats230941/ats230941** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
